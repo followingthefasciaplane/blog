@@ -1,4 +1,4 @@
-# A Manifesto for the Methodically Lazy: How to Evolve from a Fat Lazy Retard into a Lazy Retard
+# A Manifesto for the Methodically Lazy: Jacked for No Reason
 
 ## Self-righteous Preamble from a Lucid Gymcel
 
