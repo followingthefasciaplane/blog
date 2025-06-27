@@ -116,6 +116,6 @@ If you're bigger, stronger, or more experienced than me, fantastic—I have noth
 
 If you want to have an actual conversation about why I'm wrong, I'm genuinely interested in alternative perspectives, provided you can articulate them without resorting to tribal displays of dominance. I don't do any kind of fighting sports. You can probably beat my ass if you do MMA or something. We are typing on a computer.
 
-If you want to see photos of me, I don't really care enough to post them because I think it takes away from the point I'm trying to make. My Instagram is public however, and if you're reading this on GitHub, extremely easy for you to find. I don't really use it that much anymore because I'm kind of drifting off all socials, but I'll probably reply if you are particularly interesting.
+If you want to see photos of me, I don't really care enough to post them because I think it takes away from the point I'm trying to make. But here's an image of me attempting the Sergio Oliva pose from a progress posing video recently (I record this daily): https://imgur.com/a/lrClL96 - I think this photo is quite symbolic due to how goofy I look and it's ony my Desktop, so might aswell.
 
 *written by somebody deceptively well adjusted*
