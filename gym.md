@@ -96,6 +96,12 @@ Track your intake accurately using Cronometer, because subjective portion estima
 
 **Metabolic mythology:** Claims about fast or slow metabolism affecting significant weight changes are largely fantasy. Barring thyroid disorders, you're simply consuming more or fewer calories than you estimate. Metabolism affects day-to-day fluctuations, not long-term body composition trends. If you're not tracking accurately, you're not dieting scientifically. The alternative explanation is that you're violating thermodynamics, in which case you should contact research institutions rather than fitness forums.
 
+Here are two sample diets that avoid any micronutrient deficiencies in Cronometer for an example: https://imgur.com/a/iLN9gIH  
+
+One is a healthy 2000 calorie omni diet. The other is a simple 500 calories that hits every single deficiency, which allows you to just meet your protein then spend your remaining calories on whatever you want and avoid problems.  
+
+You should **NOT** attempt to eat this 500 diet alone just because it is not deficient. You’ll be bouncing in and out of ketosis, spiking gluconeogenesis, and indiscriminately losing tissue whilst becoming extremely lethargic.  
+
 ## The Psychological Hazards of Physical Improvement
 
 Fitness culture has a tendency to colonize personality, transforming reasonable people into self-righteous evangelists. One day you're just a guy who goes to the gym, and the next you're a full-blown fitness cultist, preaching the gospel of gains to anyone within earshot. Trust me, nobody likes the dude who brings up his macros and squat PR at every conversation. 
